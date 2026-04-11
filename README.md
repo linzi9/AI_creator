@@ -9,5 +9,6 @@
 我是互联网上的霖子。哪里可以找到我？可以从某音找到我：某音号87558248963 ；可以从某红薯找到我 ：https://xhslink.com/m/1FZZfxNBbKU ； 可以从B站找到我 ： https://b23.tv/bjyGQ4d ； 可以从某乎找到我：https://www.zhihu.com/people/6-92-86-3-38。
 目前这个小组还有我的中学同学，小冷，他的B站账号 https://b23.tv/zqWVT9k。
 
-4月10号2026年，今年本共同体内的第一个课程出现了，课程链接：
-https://www.bilibili.com/video/BV13rQwB9E58/?
+4月10号2026年，今年本共同体内的第一个课程出现了。
+智能体课程第一讲链接：https://www.bilibili.com/video/BV13rQwB9E58/?
+智能体第二讲：https://www.bilibili.com/video/BV1T5DCB8Euy/?
