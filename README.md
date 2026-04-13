@@ -17,3 +17,5 @@ AI infra相关的资料： https://github.com/CalvinXKY/InfraTech ； https://gi
 智能体课程第一讲链接：https://www.bilibili.com/video/BV13rQwB9E58/?
 
 智能体第二讲：https://www.bilibili.com/video/BV1T5DCB8Euy/?
+
+智能体开发第3讲： https://www.bilibili.com/video/BV1oSDQBqEDR/ ， https://www.bilibili.com/video/BV1dXDQBvEoF/
